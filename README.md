@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things that gains my skill set
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on how to solve real world problems
-- 📫 How to reach me nyeshabown32@gmail.com
+- 📫 How to reach me is nyeshabown32@gmail.com
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I work at a high school with students grades 9 to 12
 
